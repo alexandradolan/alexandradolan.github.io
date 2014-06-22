@@ -1,4 +1,4 @@
-alexandradolan.github.io
+Alexandra Dolan
 ========================
 
-alexandradolan.github.io
+alexandradolan.com
